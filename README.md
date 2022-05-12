@@ -1,1 +1,1 @@
-# SI_2022_lab2_203022
+Bojana Zdravkovska 203022
